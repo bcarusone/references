@@ -1,0 +1,6 @@
+# Death of Queen Elizabeth II
+The Queen of England passed away today at a castle in Scotland. Which led me down a rabbit hole. With her dead, the throne passes to her eldest son Charles and his wife Camilia. Her funeral preparations have been plan down to the minute- where her body will arrive and at what exact time, news stories, music selections.
+
+Charles used to be married to Diana and had two sons with her- William and Harry. There are people in the UK that love and hate the monarchy. Also now King Charles isn’t very popular there. He fell in love with Camilia before he was married to Diana but due to circumstances outside of his control, she was engaged before any romantic relationship between them could develop. Although it sounds like they maintained a romantic relationship even while he was married to Diana. The marriage between Diana and Charles was not one of love.
+
+The now heir apparent is Prince William. Prince William is married to Kate Middleton and they have three children together.
